@@ -8,3 +8,4 @@
 - keep in mind my pronouns are they/them 
 - i enjoy things like uma musume, ace attorney, persona, aitsf, zero escape, slay the princess, etc please talk to me about it!
 
+https://static.wikia.nocookie.net/umamusume/images/0/01/White_Day_2023.jpg/revision/latest/scale-to-width-down/1000?cb=20230315141704
