@@ -8,4 +8,4 @@
 - keep in mind my pronouns are they/them 
 - i enjoy things like uma musume, ace attorney, persona, aitsf, zero escape, slay the princess, etc please talk to me about it!
 
-![image](https://github.com/user-attachments/assets/8f3bcf5e-e2d1-45c2-82f7-e54a71b5be60)!
+![image](https://github.com/user-attachments/assets/c4d8dcfd-c364-4de2-a9ef-5ab1e23d40a0)
