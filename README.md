@@ -5,7 +5,7 @@
 - c+h is absolutly okay even if I am idle
 - always w2i unless im already talking to someone 
 - if i have dniuf in my name please dont interact with me unless you're my friend
-- keep in mind my pronouns are ** they/them **
+- keep in mind my pronouns are **they/them**
 - i enjoy things like uma musume, ace attorney, persona, aitsf, zero escape, slay the princess, etc please talk to me about it!
 - i dont usually interact first sorry!! if you wanna talk feel free to interact first 
 
