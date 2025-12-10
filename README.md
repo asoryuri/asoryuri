@@ -2,7 +2,7 @@
 <a href="https://colormytree.me/2025/01KC4D4ECEQ0WMNRBPB52K2EQC"> sign my tree here! :D </a>
 <br>
 <br>
-** be warned I have autism and I may not understand things very quickly! **
+<h3> <b> be warned I have autism and I may not understand things very quickly! </b> </h3>
 
 - c+h is absolutly okay even if I am idle
 - always w2i unless im already talking to someone 
