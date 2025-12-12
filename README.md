@@ -1,5 +1,5 @@
  ## ponytown stuff
-<a href="https://colormytree.me/2025/01KC4D4ECEQ0WMNRBPB52K2EQC" target="_blank"> sign my tree here! :D </a>
+<a href="https://colormytree.me/2025/01KC4D4ECEQ0WMNRBPB52K2EQC" target="_blank" rel="noopener noreferrer"> sign my tree here! :D </a>
 <br>
 <br>
 <h3> <b> be warned I have autism and I may not understand things very quickly! </b> </h3>
